@@ -1,5 +1,4 @@
 
-https://github.com/NurkholikSafrudin/uasProjek/assets/149698766/f745f922-556b-4b8d-ac79-aa7fa1d6ce05
 
 
 Nama : Nurkholik Safrudin
